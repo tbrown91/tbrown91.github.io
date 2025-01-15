@@ -2,4 +2,4 @@ Bioinformatician working at the [Leibniz Institute for Zoo and Wildlife Research
 
 **Publications**
 
-Find a full list of publications via [ResearchGate][(https://www.researchgate.net/profile/Tom-Brown-46) or [Google Scholar](https://scholar.google.com/citations?user=DYI9mmAAAAAJ&hl=en)
+Find a full list of publications via [ResearchGate](https://www.researchgate.net/profile/Tom-Brown-46) or [Google Scholar](https://scholar.google.com/citations?user=DYI9mmAAAAAJ&hl=en)
